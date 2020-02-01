@@ -34,7 +34,7 @@ Although governments represent people, that's not always true. Don't judge us fo
 
 # About me
 If I make it to some weird history textbook of the future, all you need to know about me is that my real name isn't
-Namikaze Mik (lastname firstname). Im 21 as of 2020 and I am, a nihilistic sloth.
+Namikaze Mik (lastname firstname). Im 21 as of Febuary 1, 2020 and I am, a nihilistic sloth.
 I gave up my personhood to become an abstract concept on December 12, 2019 (this is a v important date for me).
 My room is an art gallary and Im the master piece.
 I watch a lot of anime and I love cats and sleeping.
