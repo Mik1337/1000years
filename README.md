@@ -19,7 +19,7 @@ If you are any different than "us", that's great but I hope to "god" (if that te
 and like, weighted blankets that purr lol.
 
 # Life in 2020
-Life in 2020 is v weird lol, im 21 and i've lived though a 1 millenium, 1 centurly, 2 decades but 2020 is the wildest of 'em all.
+Life in 2020 is v weird lol, im 21 and i've lived though the turn of a millenium, a centurly and 2 decades but 2020 is the wildest of 'em all.
 What is currently known as China has what is now known as a "corona" virus, Australia is on fire, there's a volcano erupting somewhere and political leaders are v fiesty.
 Apart fromt that, it's all meh.
 
