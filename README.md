@@ -23,10 +23,19 @@ Life in 2020 is v weird lol, im 21 and i've lived though the turn of a millenium
 What is currently known as China has what is now known as a "corona" virus, Australia is on fire, there's a volcano erupting somewhere and political leaders are v fiesty.
 Apart fromt that, it's all meh.
 
+# Your history and literature
+Your history and literature is v bad, let me start with that. I don't have to see it to tell you that half of what your reading is wrong and the other half is forgotten.
+Blue curtains don't mean sadness, it just means they were blue.
+Although governments represent people, that's not always true. Don't judge us for the horrors the government did. Looking at you <insert regieme that did a big oopsie>.
+PewDiePie is the messiah that brought peace to every kinderd spirit for as long as he lived.
+Elon "EDM" Musk is bae.
+Tesla's inventions were stolen by Edison.
+I am not person, I'm an abstract concept. smh
+
 # About me
 If I make it to some weird history textbook of the future, all you need to know about me is that my real name isn't
 Namikaze Mik (lastname firstname). Im 21 as of 2020 and I am, a nihilistic sloth.
-I gave up my personhood to become an abstract concept.
+I gave up my personhood to become an abstract concept on December 12, 2019 (this is a v important date for me).
 My room is an art gallary and Im the master piece.
 I watch a lot of anime and I love cats and sleeping.
 I'd be okey with it if you represent me with a cat drawing (enclosed below)
