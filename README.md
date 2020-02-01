@@ -27,10 +27,10 @@ Apart fromt that, it's all meh.
 Your history and literature is v bad, let me start with that. I don't have to see it to tell you that half of what your reading is wrong and the other half is forgotten.
 Blue curtains don't mean sadness, it just means they were blue.
 Although governments represent people, that's not always true. Don't judge us for the horrors the government did. Looking at you <insert regieme that did a big oopsie>.
-PewDiePie is the messiah that brought peace to every kinderd spirit for as long as he lived.
-Elon "EDM" Musk is bae.
-Tesla's inventions were stolen by Edison.
-I am not person, I'm an abstract concept. smh
+* PewDiePie is the messiah that brought peace to every kinderd spirit for as long as he lived.
+* Elon "EDM" Musk is bae.
+* Tesla's inventions were stolen by Edison.
+* ~~I am not person, I'm an abstract concept. smh~~
 
 # About me
 If I make it to some weird history textbook of the future, all you need to know about me is that my real name isn't
